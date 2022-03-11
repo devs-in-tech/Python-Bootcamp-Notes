@@ -1,1 +1,1 @@
-## Watch the full [video](https://bit.ly/35xHnPi)
+## Watch the full [video](https://youtu.be/j6IPc0vXxQA)
